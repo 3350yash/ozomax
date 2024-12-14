@@ -1,0 +1,13 @@
+![WhatsApp Image 2024-12-14 at 1 45 14 PM (1)](https://github.com/user-attachments/assets/3a7e3148-5da8-4ae7-96f2-88950f666271) 
+start page
+![WhatsApp Image 2024-12-14 at 1 45 17 PM](https://github.com/user-attachments/assets/97afee56-3475-4a62-ae3c-5b37cd2e1438)
+![WhatsApp Image 2024-12-14 at 1 45 18 PM](https://github.com/user-attachments/assets/d856ddc2-2a24-4b67-aa66-97f8b863e03f)
+![WhatsApp Image 2024-12-14 at 1 45 19 PM (1)](https://github.com/user-attachments/assets/ecf29900-8dd2-4932-8772-0d4cc8d82f21)
+![WhatsApp Image 2024-12-14 at 1 45 15 PM](https://github.com/user-attachments/assets/154730c8-9e35-44c9-b9f1-5437fa6ebe9a)
+![WhatsApp Image 2024-12-14 at 1 45 18 PM (1)](https://github.com/user-attachments/assets/de07e882-bee7-4a30-a088-e12ebc6210df)
+![WhatsApp Image 2024-12-14 at 1 45 16 PM (1)](https://github.com/user-attachments/assets/53748f91-de9a-415d-8b99-33ca80c72b82)
+![WhatsApp Image 2024-12-14 at 1 45 15 PM (1)](https://github.com/user-attachments/assets/07a064d2-a2ba-41d1-9003-5980909d10c3)
+![WhatsApp Image 2024-12-14 at 1 45 16 PM (2)](https://github.com/user-attachments/assets/4207130e-3939-4bdf-b40e-99dd6d30c775)
+![WhatsApp Image 2024-12-14 at 1 45 17 PM (2)](https://github.com/user-attachments/assets/c0182421-c7a9-4cc4-a08c-1b23196cc70a)
+![WhatsApp Image 2024-12-14 at 1 45 16 PM](https://github.com/user-attachments/assets/1edbf2ed-ef19-45ee-8dc9-87c6a0093f89)
+![WhatsApp Image 2024-12-14 at 1 45 17 PM (1)](https://github.com/user-attachments/assets/e0c07b69-7ef8-4973-8354-7f409f20cfee)
